@@ -1,0 +1,1 @@
+Chair E-commerce card UI
